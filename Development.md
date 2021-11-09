@@ -1,3 +1,3 @@
 They are approuching the 6 month post release for 2077. As they know there is a lot of work to be done with the game. Their plan is to get back on the Playstaion consoles. They are wanting to be bigger in 2022. CDPR revealed that there is still 300 people working on the newer verison coming out soon. After many people starting to depart from the original game they are getting their bonuses. They had over 400 working in 2019 and then increased to 500 people in 2020. For reference, it took about 150 to 200 people to develop the Witcher 3. They eventually canceled the multiplayer of Cyberpunk as they found it to be too difficult to manage.
 
-![1](/unamed.jpg)
+![4](/unamed.jpg)
