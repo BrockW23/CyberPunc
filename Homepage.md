@@ -2,3 +2,5 @@ Cyberpunk 2077 is a futuristic action game devoloped in September of 2011 and re
 ![1](/cy.jpg)
 ![2](/cyb.jpg)
 ![3](/cyber.jpg)
+
+# [Plot](/plot.md)
